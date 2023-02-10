@@ -2,7 +2,7 @@
 - 👋 Hi, I’m @gaoqiantu 搞钱兔<br />
 - 🚀 Money making for better living 搞钱是为了更好的生活<br />
 - 🌱 I'm actively learning everything XD 道阻且长 行则将至<br />
-- 💡 Love innovation and new technologies since they enables us to reach financial freedom 技术与创新让我们过上更好的生活<br />
+- 💡 Love innovation and new technologies since they enables us for better living 技术与创新让我们过上更好的生活<br />
 - 📫 How to reach me ... gaoqiantu@gmail.com 一起合作<br />
 - ✨ YouTube Channel: https://www.youtube.com/@user-fm7ew7sc9t 油管频道<br />
 - ✨ Bilibili Channel: https://space.bilibili.com/332770544 B站频道<br />
