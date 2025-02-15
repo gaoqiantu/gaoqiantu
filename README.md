@@ -1,4 +1,4 @@
-<img align="top" src="grid_1.png" alt="gaoqian" width="100%" />
+<img align="top" src="三窟.jpg" alt="gaoqian" width="100%" />
 - 👋 Hi, I’m @gaoqiantu 搞钱兔<br />
 - 🚀 Money making for better living 搞钱是为了更好的生活<br />
 - 🌱 I'm actively learning everything XD 道阻且长 行则将至<br />
