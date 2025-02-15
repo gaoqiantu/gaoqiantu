@@ -3,7 +3,7 @@
 - 🚀 Money making for better living 搞钱是为了更好的生活<br />
 - 🌱 I'm actively learning everything XD 道阻且长 行则将至<br />
 - 💡 Love innovation and new technologies since they enables us for better living 技术与创新让我们过上更好的生活<br />
-- 📫 How to reach me ... [gaoqiantu@gmail.com](https://discord.gg/zqQZ4qNXgh ) 狡兔三窟社群<br />
+- 📫 How to reach me ... https://discord.gg/zqQZ4qNXgh 狡兔三窟社群<br />
 - ✨ YouTube Channel: https://www.youtube.com/@gaoqiantu 油管频道<br />
 - ✨ Bilibili Channel: https://space.bilibili.com/332770544 B站频道<br />
 - ✨ Twitter/X: https://x.com/gaoqiantu 推特<br />
